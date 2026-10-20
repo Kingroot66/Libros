@@ -1,1 +1,1 @@
-desenfoque inicial en cada pagina
+desenfoque inicial en cada pagina si
