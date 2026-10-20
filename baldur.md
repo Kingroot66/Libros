@@ -1,0 +1,1 @@
+desenfoque inicial en cada pagina

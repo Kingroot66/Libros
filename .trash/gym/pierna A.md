@@ -1,0 +1,1 @@
+- sentadilla pendulo 40

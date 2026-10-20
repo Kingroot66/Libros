@@ -1,0 +1,5 @@
+- sistema de trading automatico
+- ![[Screenshot_2026-09-28-22-21-53-79_b783bf344239542886fee7b48fa4b892.jpg]]
+- canal de yputuve automatizado para ninos
+- pagina web de videojuegos
+- pagina de barberia

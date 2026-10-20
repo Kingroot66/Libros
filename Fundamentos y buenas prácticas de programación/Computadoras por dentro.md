@@ -1,0 +1,1 @@
+![[Tanenbaum, Andrew S.- Organización de Computadoras. Un Enfoque Estructurado. Cuarta Edición. México, Prentice Hall, 2000.pdf]]

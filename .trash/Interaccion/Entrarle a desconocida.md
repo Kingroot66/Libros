@@ -1,0 +1,2 @@
+- Hola que tal（…), Continuar con pregunta acerca de algo de su tematica ; oye porque vuestra clase esta cerrada a las 8?
+- 

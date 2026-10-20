@@ -1,0 +1,1 @@
+![[Codigo limpio - Robert Cecil Martin.pdf]]
